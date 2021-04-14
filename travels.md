@@ -1,0 +1,1 @@
+Every year, my son and I take a roadtrip to explore somewhere new in Colorado.  Usually we will do a combination of camping and motels so we can stand to be in a car with each other after a few days.  I love the San Luis Valley, and last year we spent more than two weeks wandering around and staying in different parts of the valley.
