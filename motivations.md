@@ -1,0 +1,1 @@
+I decided to attend Turing because I am approaching forty years old and after fifteen years of cleaning flat tops, late nights, and plenty of partying, I am looking to find a career that will be a better fit mentally and physically.
